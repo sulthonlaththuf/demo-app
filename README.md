@@ -1,3 +1,3 @@
 # MAIN SECTION
 
-work on a weekend like usual
+work on a weekend like usual!
